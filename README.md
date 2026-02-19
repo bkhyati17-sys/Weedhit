@@ -1,2 +1,2 @@
 # Weedhit
-Mwah here is your star &lt;3
+Mwah, here is your star &lt;3
